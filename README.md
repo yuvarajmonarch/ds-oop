@@ -1,4 +1,4 @@
-# Ex 5
+# Ex - 5
 
 ![image](https://github.com/user-attachments/assets/0475c3cc-94f8-42f9-9c4e-21c4c70809ee)
 
